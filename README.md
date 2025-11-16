@@ -61,6 +61,6 @@ I served 13 years in the U.S. Army. Drill Sergeant. Leader. Now I’m building a
 ---
 
 ## 🏁 Signature
-**This GitHub is part of a bigger mission —  
-The Champ Life. Real tools. Real results.  
-Built by Felix Viruet.**
+**The Champ Life is more than a brand — it's my mission.  
+Tools that work. A life that hustles.  
+Built by Felix Viruet — Veteran, Builder, Father.**
